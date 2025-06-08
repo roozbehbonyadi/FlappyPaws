@@ -2,4 +2,4 @@
 Flappy Paws iPhone Game
 
 
-For help with Flappy Paws, email roozbeh.bonyadi@gmail.com
+For help with Flappy Paws, email flappypaws.game@gmail.com
