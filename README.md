@@ -88,6 +88,14 @@ We may update this policy when we make changes to the App or its data practices.
 
 9. Contact Us
 
-If you have questions or requests regarding this Privacy Policy or your data, please email us at: flappypaws.game@gmail.com
+If you have questions or requests regarding this Privacy Policy or your data, please email us at: 
+
+flappypaws.game@gmail.com
+Prof.Neko
+
+Thank you for playing Flappy Paws! Please review this policy periodically for updates.
+
+**********************************************************
+**********************************************************
 
 
